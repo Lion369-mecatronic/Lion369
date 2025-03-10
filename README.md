@@ -1,2 +1,2 @@
-# Lion369.cum
-skibibibibibibibibibibibibibibididididididididididididididididididididididididididididididididididididididididididididididididididididididididi
+# Lion369
+Ingegnere mecatronico
